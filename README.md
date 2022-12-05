@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @roob1y
+- 👀 I’m interested in problem solving and learning new skills
+- 🌱 I’m currently learning 
+- 📫 Reach me on my 
+  - Linkedin - https://www.linkedin.com/in/robertjbarron/
+  - Email - robwork122@gmail.com
